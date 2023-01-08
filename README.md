@@ -5,7 +5,7 @@
 
 <p align="left"> <a href="https://twitter.com/chamod_nadun" target="blank"><img src="https://img.shields.io/twitter/follow/chamod_nadun?logo=twitter&style=for-the-badge" alt="chamod_nadun" /></a> </p>
 
-- 📫 How to reach me **dasanayakac07@gmail.com**
+- 📫 How to reach me **im.lynux99@gmail.com**
 
 - ⚡ Fun fact **I am not one of 69 lakhs 😹**
 
